@@ -6,7 +6,7 @@
 </div>  
   
 
-### <div align="center">Hyun Jeong lee (Zoe)</div>  
+### <div align="center">Hyun Jeong Lee (Zoe)</div>  
   
 
 <div align="center">Hi! I’m Zoe, a creative mind with 6 years of experience as a Brand Manager, Product Developer (Merchandiser), and Graphic Designer. </br></br>
